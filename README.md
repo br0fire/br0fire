@@ -43,6 +43,6 @@
 
 ## 🌍 Contact me
 
-💌 Email: [bakugan2308@gmail.com](mailto:bakugan2308@gmail.com)  
+💌 Email: [s.grozny02@gmail.com](mailto:s.grozny02@gmail.com)
 📬 Telegram: [t.me/br0fire](https://t.me/br0fire)  
 📄 **[CV](https://disk.yandex.ru/i/z-oVbp4cPb8MLg)** 
