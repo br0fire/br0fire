@@ -45,4 +45,4 @@
 
 💌 Email: [s.grozny02@gmail.com](mailto:s.grozny02@gmail.com)
 📬 Telegram: [t.me/br0fire](https://t.me/br0fire)  
-📄 **[CV](https://disk.yandex.com/i/DoyKwclFN9i5Yg)** 
+📄 **[CV](https://drive.google.com/file/d/1gRZk2s7CB4iGFoZbyu7pSYfnrTvEukcB/view)**
